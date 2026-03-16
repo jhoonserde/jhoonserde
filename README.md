@@ -10,4 +10,4 @@
   ▀                                                                                                              
 ```
 
-# Jan bacot kek Ɑ͞ ̶͞ ̶͞ ̶͞ لں͞ Kalo masih pecut eyay
+# Pemecut handal tidak akan pernah berhenti karena token habis
