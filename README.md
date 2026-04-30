@@ -10,5 +10,5 @@
 ```
 
 
-# Coding mah gampang bre yang susah tu belajar hal baru
+# Monyet yang suka baca docs dan intelek
 
