@@ -10,5 +10,5 @@
 ```
 
 
-# Monyet yang suka baca docs dan intelek
+<h1 align="center">Monyet yang suka baca Docs dan Intelek</h1>
 
